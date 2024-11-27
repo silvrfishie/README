@@ -7,7 +7,7 @@
 >
 >  ‎  ‎  ‎ ‎  ‎   ‎ **autistic**, **adhd** & bpd (and unfortunately more,,)
 >
-> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things, i recommend reading my [strawpage](https://silvrfishie.straw.page) as it goes into depth about my interests and other stuff! 
+> ‎**transformers** is my <ins>spinterest</ins>, however i like a bunch of other things, i recommend reading my [strawpage](https://silvrfishie.straw.page) as it goes into depth about my interests and other stuff!  ━  [kins](https://silvrfishie.carrd.co/)
 
  **`🔩`** ‎ ━ **labels.** orientation/identity ‎ **:** ‎ 
  > **gay**, transgender (<ins>**ftm**</ins> ━ transmasc), traitblur, pupgender & recipriosexual
