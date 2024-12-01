@@ -1,4 +1,3 @@
-<p align="center"><img src="https://wilardo.crd.co/assets/images/gallery05/d1b89f23.gif?v=a9ab673e"</p>
 <p align="center"><img src="https://woahaahahahhh.carrd.co/assets/images/image03.png?v=4fd6674c"</p>
 
 ![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)![](https://wilardo.crd.co/assets/images/gallery21/82c9c79e.gif?v=b62e9456)
